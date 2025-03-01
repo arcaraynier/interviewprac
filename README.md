@@ -21,3 +21,4 @@ Feb. 23, 2025 - Seize the day
 Feb 25, 2025 - great
 Feb 27, 2025 - Yesterday with jb house and together w/ cj. talking about future plans.
 Feb 28, 2025 - First day of work yesterday, I had an interview with George
+March 1, 2025 guimaras attend funeral
