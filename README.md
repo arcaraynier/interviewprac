@@ -22,3 +22,5 @@ Feb 25, 2025 - great
 Feb 27, 2025 - Yesterday with jb house and together w/ cj. talking about future plans.
 Feb 28, 2025 - First day of work yesterday, I had an interview with George
 March 1, 2025 guimaras attend funeral
+
+March 06, 2025. [thursday] overwhelm may work nako. ara gid ang libakanay, favoritism. I know I am a slow learner and am willing to learn 
