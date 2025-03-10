@@ -24,3 +24,4 @@ Feb 28, 2025 - First day of work yesterday, I had an interview with George
 March 1, 2025 guimaras attend funeral
 
 March 06, 2025. [thursday] overwhelm may work nako. ara gid ang libakanay, favoritism. I know I am a slow learner and am willing to learn 
+March 10, 2025 - tired because jog, 12,464 steps.
