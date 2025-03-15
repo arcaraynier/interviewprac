@@ -25,3 +25,5 @@ March 1, 2025 guimaras attend funeral
 
 March 06, 2025. [thursday] overwhelm may work nako. ara gid ang libakanay, favoritism. I know I am a slow learner and am willing to learn 
 March 10, 2025 - tired because jog, 12,464 steps.
+
+March 15, 2025 - Uratex with manang jen, manang faith and renren, then pakaon sa mcdo, then duty bisan day off sabay lang kay sir renz kay last day duty niya kay ma resign na siya then around 8pm puli. then panglaba storya kay nong jirson kay manog board exam na sa, then may new laptop siya.
