@@ -29,3 +29,4 @@ March 10, 2025 - tired because jog, 12,464 steps.
 
 March 15, 2025 - Uratex with manang jen, manang faith and renren, then pakaon sa mcdo, then duty bisan day off sabay lang kay sir renz kay last day duty niya kay ma resign na siya then around 8pm puli. then panglaba storya kay nong jirson kay manog board exam na sa, then may new laptop siya.
 March 18, 2025 , Sleep with nanay and greeted her, woke up around4:00 she went to church and I have duty. tommorrow is her birthday happy 65th birthday nanay. sensya wla pako gid gift or ano gid.
+March 19, 2025 - Its nanay's birthday! happy 65th birthday nanay I love you. wishing you good health!.
