@@ -37,3 +37,6 @@ March 23, Sunday, nag pamanicure ni ata kami ni nanay then nag pa savannah Ako, 
 March 24, birthday Adi, nag pa office pako, na approved gli akon schedule adjustment or swap schedule
 
 March 25, updated GitHub duty on 6-3pm
+
+
+March 30, 2025 - sigh
