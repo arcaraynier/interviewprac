@@ -1,7 +1,7 @@
 # interviewprac
 practinterview
 
-lets practice interview
+lets practice interview.
 
 yeahgeee tired and
 e.ss
