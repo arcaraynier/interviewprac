@@ -43,4 +43,5 @@ March 30, 2025 - sigh
 
 April 23, 2025 - 5:01 am. [ Greeted nanay, kagab'e nag basket day peter nagtulog nako.
 
-April 36 - 4:16 am
+April 26 - 4:16 am
+April 29, 2025 - 4:48 am. throwtrash 
